@@ -1,4 +1,1 @@
-- VeetaCrush/Gsus/Joseph De'yeah
-- DTM Producer/BMS
-- https://twitter.com/VeetaCrush
-- https://soundcloud.com/veetacrush
+
